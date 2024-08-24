@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **java**
 
-- 📫 How to reach me **Ghadeer.alhamdanii@gmail.com**
+- 📫 How to reach me **Ghadeer.mh@outlook.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
